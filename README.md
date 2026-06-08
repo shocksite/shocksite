@@ -1,4 +1,4 @@
-hi! <br/> 
+hi! rentry link is my info<br/> 
 no dni i block who i want <br/>
 i'm not very active but i enjoy interaction through the whisper option! <br/>
 i don't get on here to argue with strangers so please try to avoid doing so! you're free to always block 😊 <br/>
